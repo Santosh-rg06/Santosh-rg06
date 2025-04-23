@@ -1,5 +1,4 @@
 # 💫 About Me:
-Student
 
 
 ## 🌐 Socials:
